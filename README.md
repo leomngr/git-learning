@@ -4,3 +4,4 @@ To subscribe to GitHub Copilot Individual, you can try GitHub Copilot for free w
 To continue using Copilot after the trial, you will need a paid subscription, 
 unless you are a verified student, teacher, or maintainer of a popular open source project on GitHub.
 1234567890
+Did klndffl;k fbd  ;gs'sd'
